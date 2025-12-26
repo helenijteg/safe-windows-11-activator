@@ -1,0 +1,1 @@
+# safe-windows-11-activator
